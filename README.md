@@ -1,1 +1,1 @@
-accessory & jewelry sale
+accessory & jewelry sales
